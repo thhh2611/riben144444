@@ -20,4 +20,4 @@
 
 安全方面，本站默认启用隐私模式，无浏览记录，无追踪，无广告干扰。点击任意入口，即刻体验纯净高清的日本成人影片世界！
 
-<span style="display:none;">[Canonical link]  (  ）</span> 
+<span style="display:none;">[Canonical link]  ( https://github.com/thhh2611/riben144444 ）</span> 
